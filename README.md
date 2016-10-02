@@ -2,4 +2,4 @@
 
 my first repository
 
-las vegas, former USMC, 3x leveraged commodities trader, long ethereum
+Fulltime student at CSN LasVegas// software, former USMC, 3x leveraged commodities trader, long ethereum from mazatlan sinaloa
